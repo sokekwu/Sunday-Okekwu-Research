@@ -5,6 +5,6 @@ How market demand, enterprise activity, and value retention can build productive
 Read the full research:
 https://sundayokekwuinsurance.wordpress.com/2026/09/26/africas-market-as-a-productive-asset/
 Explore my research books on Amazon:
-https://www.amazon.com/author/sunday_okekwu
+https://www.amazon.com/author/sunday_okekwu_author
 
 
